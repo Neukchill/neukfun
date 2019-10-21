@@ -5,7 +5,7 @@ Neuk加速最新无污染官网
 SSR站  
 ~~https://gfw.care~~  
 ~~https://gfwstar.me~~  
-~~https://neukpro.club~~~
+~~https://neukpro.club~~  
 https://neukssr.club
 
 V2RAY站  
